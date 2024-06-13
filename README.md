@@ -10,3 +10,9 @@ Meu nome é Luana Nunes💜
 ### Você pode entrar em contato comigo :mailbox
 
 00001116605004sp@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/oDHmRSkJqCMAAAAd/taehyung-disgusted-taehyung.gif)
+
+![](https://media1.tenor.com/m/Ml4QxigYmZ8AAAAd/taehyung-pout.gif)
+
+![](https://media1.tenor.com/m/Rgi_FYG-YJgAAAAd/v-v-bts.gif)
